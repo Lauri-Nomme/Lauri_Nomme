@@ -1,4 +1,4 @@
-Lauri_Nomme
+Lauri Nõmme
 ===========
 
 Lauri Nõmme
